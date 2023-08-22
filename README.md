@@ -12,7 +12,7 @@
 
 📧 Email : aliyah52187@gmail.com
 
-🎨 PortFolio : [Click!](https://ranggu.notion.site/4fde99d555ad40088f81677415ecc63e?pvs=4)
+🎨 PortFolio : [Click!](https://ranggu.notion.site/7cdf215832904cbaad68764bf9fa531e?pvs=4)
 <br /><br />
 
 ### 📚Tech Stack📚
