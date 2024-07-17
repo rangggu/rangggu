@@ -12,7 +12,7 @@
 
 📧 Email : aliyah52187@gmail.com
 
-🎨 PortFolio : [Click!](https://ranggu.notion.site/e2931edbe5e14f8e85a9a7e9408601be?pvs=4)
+🎨 PortFolio : [Click!](https://ranggu.notion.site/Gyuri-Portfolio-25a387f9138d40339bd0c4e259186fc1?pvs=4)
 <br /><br /><br /><br />
 
 ### 📚기술 스택📚
